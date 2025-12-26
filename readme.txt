@@ -7,4 +7,10 @@ fuck uuuuuuuu
 
 just link u
 /
-go away sir
+dasdasdgo away sir
+boring tired
+happy money
+everything
+live
+comfortable
+
